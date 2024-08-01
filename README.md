@@ -24,10 +24,6 @@ I would also like to deepen my knowledge of cybersecurity.
 ## Contact me 📩
 
 You can contact me via e-mail at **martina.merlini2@gmail.com**      
-Or by **social media**:
-
-[![Linkedin](https://www.linkedin.com/in/martinamerlini/)
-
 
 ## If you've made it this far! 🙏
 
